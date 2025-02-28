@@ -1,0 +1,2 @@
+# forsomeone
+JANGAN KASI SIAPA SIAPA
